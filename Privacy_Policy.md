@@ -17,4 +17,4 @@ The posts include discussion or links to video games that can vary in age-range 
 This privacy policy can end up being updated. If that is the case, the new policy will be listed in this document here or relocated elsewhere but will be accessible on the store page of this application. You are advised to consult this document for changes as continued use of the application is deemed approval of all of policy changes.
 
 # Contact Me
-If you have a question regarding this privacy policy, feel free to contact via my email qpstoopidqp@gmail.com.
+If you have a question regarding this privacy policy, feel free to contact via my email freegamefindings@outlook.com.
